@@ -1,3 +1,3 @@
 # cristianducoing.github.io
 
-> This is the website for Cristián Ducoing 
+> This is the website for Cristián Ducoing R. 
